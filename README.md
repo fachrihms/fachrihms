@@ -8,6 +8,8 @@ Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](http
 
 atau kita bisa saling follow [Instagram](www.instagram.com/fachrihms_) :D
 
+Profile GitHub ini akan berisi portfolio saya mengenai coding dan juga Data Analyst ^_^
+
 ### Github Statistic
 <p align="left">
 <a href="https://github.com/fachrihms">
