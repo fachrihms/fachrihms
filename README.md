@@ -2,13 +2,13 @@
 
 Perkenalkan nama saya **Fachri Hidayah Maliki Saddam**.<br>
 
-Saya seorang **Mahasiswa** di Universitas Pendidikan Indonesia.<br>
+Saya seorang buruh ketik (mau digantiin AI)<br>
 
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/fachri-hidayah-maliki-saddam-006020196/)ku ya.
 
 atau kita bisa saling follow [Instagram](www.instagram.com/fachrihms_) :D
 
-Profile GitHub ini akan berisi portfolio saya mengenai Data Analyst ^_^
+Profile GitHub ini akan berisi portfolio saya mengenai Data Analyst atau apa aja bebas yg berhubungan sm ngodonf xD
 
 ### Github Statistic
 <p align="left">
